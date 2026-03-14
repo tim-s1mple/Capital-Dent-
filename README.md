@@ -1,2 +1,0 @@
-# Capital-Dent-
-About us
